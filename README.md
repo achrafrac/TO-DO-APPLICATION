@@ -2069,10 +2069,10 @@ This homework allowed us to practice well all our knowledge learned in this cour
  
   <h2 align="center"> Email</h2> 
  
- ayoub.hsaine@eidia.ueuromed.org
- <br>
- rachid.achraf@eidia.ueuromed.org
- <br>
- rachidhsaine77@gmail.com
  
-> Since the main tools to illustrate your work is the media. try to fix the links of the videoa. Because I can't see them.
+
+ achraf.rachid2001@gmail.com
+ <br>
+
+ 
+
